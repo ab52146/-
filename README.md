@@ -1,6 +1,6 @@
 ### 防封地址sexdizhi.com
 ### :sunglasses::sunglasses:（sexdizhi.com）:sunglasses::sunglasses:
-### 【地址一】  http://seav03.xyz/
+### 【地址一】  http://sex6903.xyz/
 ### 【地址二】  http://sexavb.com/
 ### 【邮箱联系方式】  hehei154245@gmail.com
 ### :heart: :point_right:【防封地址】  http://www.sexdizhi.com
