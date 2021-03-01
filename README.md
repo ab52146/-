@@ -5,7 +5,6 @@
 ### 【地址三】  https://kanp20.xyz/
 ### 【地址四】  https://kanp21.xyz/
 ### 【地址五】  https://seav11.xyz/
-### 【地址六】  http://sexavd.com/
 ### 【邮箱联系方式】  hehei154245@gmail.com
 ### :heart: :point_right:【防封地址】  https://www.sexdizhi.com
 ### QQ或者微信点不开以上链接请用手机浏览器打开！
